@@ -1,1 +1,1 @@
-pusing sekali
+mumet bangsaaaaaaatttt !!!
